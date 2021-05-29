@@ -3,3 +3,4 @@
 ## Bernardo Miguel Florenzano
 ## Ana Carolina Pescador Rosa
 ## Ana Beatriz Delgado Rodrigues
+## Vitória Rodrigues Linhar
