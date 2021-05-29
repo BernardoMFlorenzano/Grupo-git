@@ -4,3 +4,4 @@
 ## Ana Carolina Pescador Rosa
 ## Ana Beatriz Delgado Rodrigues
 ## Vitória Rodrigues Linhar
+## Josué Elias Efigênio Apolinário
